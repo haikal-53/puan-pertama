@@ -1,3 +1,3 @@
 # puan-ketigabanget
-makan ayam
+makan ayam  
 geprek
