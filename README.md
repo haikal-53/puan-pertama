@@ -1,1 +1,2 @@
 # puan-ketigabanget
+makan ayam
